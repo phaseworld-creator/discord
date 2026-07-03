@@ -29,4 +29,4 @@ im really unlucky, dont really want anything if i do a work, if i work for you o
 ## a tiny info about me
 I dont Really Want to have a gf/bf But is asked and i really know you it may be a yes(but im most of the time im not online)
 ## NEED TO KNOW
-If i feel comfortable, i can make joke that at the base i will not say, same for my attitude, language(you know the list)
+If i feel comfortable around you, i can make joke that at the base i will not say, same for my attitude, language(you know the list)
