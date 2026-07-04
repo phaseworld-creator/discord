@@ -3,13 +3,13 @@ Here The info under
 ## Name/Nickname
 Leo/Phase
 ## Age
---
+******
 ## Pronouns
 he/him
 ## Gender
 Male
 ## Sexuality
----------
+************
 ## Country
 France
 ## Time Zone
